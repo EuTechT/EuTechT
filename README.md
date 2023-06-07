@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **eutech.backup@gmail.com**
 
-- 📄 Know about my experiences [LinkedIn](https://www.linkedin.com/in/andr%C3%A9-filipe-9298891a5)
+- 📄 Know about my experiences [LinkedIn](linkedin.com/in/drefilipe/)
 
 - ⚡ Fun fact **I have a hard time learning but I never give up!**
 
