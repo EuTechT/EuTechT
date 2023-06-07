@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **br.dre.developer@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/in/drefilipe/](linkedin.com/in/drefilipe/)
+<!-- - 📄 Know about my experiences [linkedin.com/in/drefilipe/](linkedin.com/in/drefilipe/) -->
 
 - ⚡ Fun fact **I always try harder more than others to reach the same place as them.**
 
